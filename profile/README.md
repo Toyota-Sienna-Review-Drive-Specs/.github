@@ -1,4 +1,4 @@
-# 🚙 [2025 Toyota Sienna Review: Drive, Performance & Specs Tested](https://motorandauto.com/2025-toyota-sienna-review-drive-performance-specs-tested/)— In-Depth Breakdown by MotorandAuto.com
+# 🚙 2025 Toyota Sienna Review: Drive, Performance & Specs Tested— In-Depth Breakdown by MotorandAuto.com
 
 Welcome to the **most detailed 2025 Toyota Sienna resource online**, brought to you by **MotorandAuto.com**. Whether you’re a casual fan or serious buyer, this guide outlines **everything you need to know** about Toyota's Minivan masterpiece.
 
