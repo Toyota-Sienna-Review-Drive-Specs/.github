@@ -8,11 +8,13 @@ Welcome to the **most detailed 2025 Toyota Sienna resource online**, brought to 
 ---
 > ✅ **👉 [READ THE FOLLOWING ASPECTS IN DETAIL](https://motorandauto.com/2025-toyota-sienna-review-drive-performance-specs-tested/)**
 
+---
+> 📌 **👉 [Full overview and comparison available at MotorandAuto.com](https://motorandauto.com/2025-toyota-sienna-review-drive-performance-specs-tested/)**
+
+---
 ## 🔍 **Overview**
 
 Learn about the Toyota Sienna market position, key highlights, and how it compares against competitors 
-
-📌 **[Full overview and comparison available at MotorandAuto.com](https://motorandauto.com/2025-toyota-sienna-review-drive-performance-specs-tested/)**
 ---
 
 ## ⚙️ **Engine, Performance & Transmission**
